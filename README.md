@@ -17,6 +17,6 @@ At SugarDash Bakery, we're passionate about crafting exceptional bakery treats t
 
 ## Contact Us
 
-Ready to indulge in the sweetness of SugarDash Bakery? Visit us at [insert address] or contact us at [insert phone number] to place your order or learn more about our bakery treats.
+Ready to indulge in the sweetness of SugarDash Bakery? contact us on our Website to place your order or learn more about our bakery treats.
 
 Thank you for choosing SugarDash Bakery. We look forward to serving you soon!
